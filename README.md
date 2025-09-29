@@ -6,6 +6,7 @@
 
 ##### <p align="center"> ![](https://komarev.com/ghpvc/?username=eijiromantic&label=ᰔᩚ&color=fdbff1&style=plastic&abbreviated=true) 
 
-##### <p align="center"> ↓ click on stamps for links (wip) ↓
+##### <p align="center"> ↓ click on stamps for links ↓
 ##### <p align="center"> [![](https://files.catbox.moe/ylrks5.png)](https://eijiromantic.straw.page)⠀⠀⠀⠀ [![](https://files.catbox.moe/n4gctd.png)](https://eijirou.atabook.org)⠀⠀⠀⠀ ![](https://files.catbox.moe/3l2tz5.png)
+##### <p align="left">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀^^ strawpage⠀⠀⠀⠀⠀⠀^ atabook⠀^ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀wip ^^
 ##### <p align="center"> "If it takes fighting a war for us to meet, it will have been worth it."
