@@ -2,6 +2,7 @@
 ##### <p align="center"> <img src="https://files.catbox.moe/5l8k9k.png" height="800" />
 
 
+##### <p align="center"> ships pls dniuf
 
 
 ##### <p align="center"> ![](https://komarev.com/ghpvc/?username=eijiromantic&label=ᰔᩚ&color=fdbff1&style=plastic&abbreviated=true) 
